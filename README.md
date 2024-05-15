@@ -1,9 +1,8 @@
- my name is Francisco .
-
-I am interested in general money.
-
-I really like volleyball.
-
-I am 17 years old.
-
-first Argentina and second France
+MY NOMBRE ES FRANCISCO.
+ESTUDIANTE DE LA ESCUELA EXPRIMENTAL PRoA .
+TENGO 17 AÑOS.
+01/05/2007
+ME GUSTA COMER :)
+JUEGO VOLEY. 
+ME GUSTA TAMBIEN ESCUCHAR MUSICA Y MAS SI ES DE TRAP.
+QUIERO UN BUEN FUTURO PARA AYUDAR A MI FAMILIA.
